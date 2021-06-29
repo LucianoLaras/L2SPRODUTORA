@@ -1,0 +1,2 @@
+# L2SPRODUTORA
+ARTE: 1. habilidade ou disposição dirigida para a execução de uma finalidade prática ou teórica, realizada de forma consciente, controlada e racional. 2. conjunto de meios e procedimentos através dos quais é possível a obtenção de finalidades práticas ou a produção de objetos; técnica.Somos uma produtora artística independente. Desenvolvemos treinamentos, processos de coaching e mentoria. Buscamos incansavelmente o melhor resultado dentro da sua atividade artística! Venha conhecer nossa metodologia! FORTE ABRAÇO
